@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi 👋, i´m Sofia Eroles
 
 <!--
 **240623/240623** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
